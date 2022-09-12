@@ -1,1 +1,3 @@
-# Reid_J_HW1
+# Team Ryan n Justyn
+
+Wildgi
